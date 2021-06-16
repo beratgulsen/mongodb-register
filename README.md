@@ -1,2 +1,3 @@
-# mongodb-register
-v12 register
+# Yakında Sizlerlerle...
+
+Haberdar olabilmek için ; discord.gg/striga
