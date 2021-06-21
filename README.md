@@ -1,5 +1,5 @@
 # Yakın zamanda sizlerle olacak olan registeri önceden tanıtmak istiyorum ;
-
+PUBLİC SUNUCUMUZA GELMEYİ UNUTMAYIN discord.gg/victoria
 Tanımadan önce sunucumuza gelip destek alabilir ve daha kaliteli altyapılara ulaşabilirsiniz; discord.gg/striga
 ( Direk fotoğraflar ile tanıtıcam )
 
@@ -46,3 +46,4 @@ Tanımadan önce sunucumuza gelip destek alabilir ve daha kaliteli altyapılara 
 
 ![image](https://user-images.githubusercontent.com/71249068/122705523-9b591f00-d25e-11eb-9957-e9cb0fa10025.png)
 
+PUBLİC SUNUCUMUZA GELMEYİ UNUTMAYIN discord.gg/victoria
